@@ -5,3 +5,5 @@ Some of my favorites are:
 1. Going to the sea.
 2. Braai and Biltong.
 3. Spending time with friends and family.
+4. I love watching rugby and playing sports
+5. Life is a journey.
